@@ -1,0 +1,1 @@
+Thanks for viewing my resume. please email at neelinderbedi.nb@gmail.com
